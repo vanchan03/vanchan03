@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vanchan03
-- 👀 I’m interested in singing 🎶 and taekwondo 🥋
+- 👀 I’m interested in singing 🎶 and taekwondo 🥋 and writing :))
 - 🌱 I’m currently learning Python 🐍 for data science
 - 💞️ I’m looking to collaborate on my Stats 21 class
 - 📫 How to reach me: vanessachan2003@g.ucla.edu
