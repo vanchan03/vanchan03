@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @vanchan03
 - 👀 I’m interested in singing 🎶 and taekwondo 🥋 and writing :))
+- ✨ I'm half 🇸🇬, half 🇹🇼🇺🇸. I was born & raised in 🇸🇬 but visited 🇹🇼 twice a year in childhood.
 - 🌱 I’m currently learning Python 🐍 for data science
-- 💞️ I’m looking to collaborate on my Stats 21 class
+- 🦆 I’m looking to collaborate on my Stats 21 class
 - 📫 How to reach me: vanessachan2003@g.ucla.edu
 
 <!---
