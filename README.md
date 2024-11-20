@@ -3,7 +3,7 @@
 - 📚 I also have minors in Study of Religion and Digital Humanities
 - 👀 I’m interested in singing 🎶 and taekwondo 🥋 and writing music :))
 - 🌎 I'm half 🇸🇬, half 🇹🇼🇺🇸
-- ✨ Check out my creative portfolio here: vanishingmotivation.weebly.com
+- ✨ Check out my creative portfolio here: vanishingmotivation.weebly.com 
 - 🔗 And LinkedIn: https://www.linkedin.com/in/vanessa-chan-8bbb831b4/
 - 📫 How to reach me: vanessachan2003@g.ucla.edu
 
